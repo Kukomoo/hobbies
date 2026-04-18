@@ -1,4 +1,4 @@
-# 🐉 Hobbies
+
 
 > Where I paste everything related to my hobbies
 kkkk
